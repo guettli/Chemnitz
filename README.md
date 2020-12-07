@@ -6,6 +6,9 @@ Source: [Wikipedia](https://en.wikipedia.org/wiki/Chemnitz)
 
 Chemnitz is a bit gray, but therefore the bright spots shine even more.
 
+# City Center
+* [Karl Marx Monument](https://en.wikipedia.org/wiki/Karl_Marx_Monument)
+* Innere Klosterstraße
 
 # Surrounding area
 
