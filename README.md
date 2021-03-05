@@ -10,6 +10,10 @@ Chemnitz is a bit gray, but therefore the bright spots shine even more.
 * [Karl Marx Monument](https://en.wikipedia.org/wiki/Karl_Marx_Monument)
 * Innere Klosterstraße
 
+# Winter
+
+* [Tobogganing at "Katzenbuckel"](https://www.google.com/search?q=chemnitz+katzenbuckel+roderln&tbm=isch)
+
 # Surrounding area
 
 * [Choco Del Sol (Handmade Chocolate)](https://chocodelsol.com/)
